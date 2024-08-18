@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pedrodb87
 - 👀 I’m interested in Sports, video, photography,audio, tech an business.
-- 🌱 DevOps life 
+- 🌱 IT 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me : pedrodb87@gmail.com
 
